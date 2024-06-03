@@ -1,1 +1,1 @@
-# K-ko-i-krzy-yk
+# Kółko-i-krzyżyk
